@@ -1,4 +1,4 @@
------ Socials -----
+--- Socials ---
 
 ♫ [Linkedin](https://www.linkedin.com/in/andy-leclerc-36aba6287) ♫
 
